@@ -1,4 +1,4 @@
-# [ULTRABET GİRİŞ İÇİN TIKLAYINIZ]()
+# [ULTRABET GİRİŞ İÇİN TIKLAYINIZ](https://xn--guncelgrs-1pbb.com/kwwsv://zzzxowudehw960.frp)
 
 **ULTRABET'e Erişim: Yeni Adresiyle Üye Olun ve Avantajlardan Yararlanın**
 
